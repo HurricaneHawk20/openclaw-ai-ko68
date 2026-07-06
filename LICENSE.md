@@ -1,4 +1,4 @@
-# 
+# Premium OpenClaw préréglages. Avec informatique de bord et protection de la vie privée — optimisé pour des performances et une efficacité maximales.
 
 
 
